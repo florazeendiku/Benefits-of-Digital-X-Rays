@@ -6,7 +6,7 @@
 
 <p><img alt="Benefits of Digital X-Rays" src="https://www.deardoctor.com/images/website-content/digital-x-rays/digital-x-rays.jpg" style="width: 700px; height: 450px;" /><br />
 In 1895, Wilhelm R&ouml;ntgen invented the X-ray, which became the foundation of medical radiography. This discovery demonstrated that the inside portions of our bodies might be examined without invasive and dangerous surgery. The advent of the X-ray revolutionized contemporary medicine, eventually developing into the digital X-ray that we use today.<br />
-Although it was later realized that repeated X-ray exposure might be detrimental, extra precautions are now taken to safeguard both the patient and the doctor and avoid problems. <a href="https://erofwatauga.com/heart-disease-in-women/"><strong>Digital X-ray has advantages</strong></a> over traditional film/screen X-rays, including the following:<br />
+Although it was later realized that repeated X-ray exposure might be detrimental, extra precautions are now taken to safeguard both the patient and the doctor and avoid problems. <a href="https://erofwatauga.com/digital-x-rays-vs-normal-x-rays-major-differences/"><strong>Digital X-ray has advantages</strong></a> over traditional film/screen X-rays, including the following:<br />
 <strong>Less Radiation:&nbsp;</strong><br />
 Compared to traditional X-ray equipment, <strong><a href="https://erofwatauga.com/">digital X-rays</a> </strong>emit 80% less radiation. When you have an X-ray, you will almost certainly be exposed to some form of radiation. However, safeguards and safety measures are in place, and the exposure is minor and quick.<br />
 <strong>Image quality:&nbsp;</strong><br />
